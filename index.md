@@ -1,6 +1,6 @@
 # Fones de Ouvido
 Pesquisa de fones para retorno
-##### Fones supra-auriculares (externos)
+##### Fones supra-auriculares (over-ear) (externos)
 ### SUPER LUX
 Geral: Fones com melhor expressão nos sub-graves, médios um pouco mais recuados e alta presença nos agudos. Pode ser bom para o baixo e bateria, agudos podem irritar.
 Boa sensação  de sala.
@@ -32,7 +32,8 @@ Melhor para a bateria e baixa
 ### KOSS PORTAPRO
 Media de preço R$ 200,00  a R$ 300,00
 
-Resumo : Concha aberta, menor isolamento
+Resumo : Concha aberta, menor isolamento.
+Melhor para guitarra e violão, pois, 
 
 **KOSS PORTAPRO**
 
@@ -47,5 +48,24 @@ Resumo : Concha aberta, menor isolamento
 Media de preço R$ 150,00  a R$ 200,00
 
 **Arcano ARC-SHP80**
+Geral: De acordo com o review parece ser o fone mais balanceado sem graves em excesso e sem ser agressivo nos agudos.
+Também foi citado que é um fones versatíl e se adatipou bem para varíos estilos.
 
 [Loja](https://www.lojadiscovery.com.br/arc-shp80)
+
+[Video do Review – Arcano SHP80](https://www.youtube.com/watch?v=08sU1AYHX8s)
+
+**Arcano ARC-SHP30**
+
+[Video do Review – Arcano SHP30](https://www.youtube.com/watch?v=bRHYQD1wRCk)
+
+[Comparativo – Superlux HD681 vs Arcano ARC-SHP80](https://www.youtube.com/watch?v=ahn5fkDU9WM)
+
+---
+##### Fones intra-auriculares (in-ear)(internos)
+
+Media de preço R$ 70,00  a R$ 150,00
+
+**ZSN** 
+
+[ZSN PRO vs ZSN: quem leva a melhor?](https://www.youtube.com/watch?v=S9Jo-znQrnk)
