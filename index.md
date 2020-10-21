@@ -71,6 +71,12 @@ Media de preço R$ 70,00 a R$80,00
 
 [Loja Amazon](https://www.amazon.com.br/Fone-Ouvido-Dobrável-Sony-Preto/dp/B00NBR70DO/ref=asc_df_B00NBR70DO/?tag=googleshopp00-20&linkCode=df0&hvadid=379708086870&hvpos=&hvnetw=g&hvrand=12030220138243236766&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1001773&hvtargid=pla-385802384580&psc=1)
 
+---
+
+****
+
+[H840 EDIFIER](https://www.lojaedifier.com.br/fone-de-ouvido-h840-edifier-preto.html?___store=lojaedifier&fee=4&fep=1487&gclid=Cj0KCQjwrIf3BRD1ARIsAMuugNsp_gadzyy7O3CqzmWUOYJ6adKiDJandVqgWK7F6XZTwN49rBVbTVMaAs3EEALw_wcB)
+
 
 
 ---
