@@ -62,6 +62,19 @@ Também foi citado que é um fones versatíl e se adatipou bem para varíos esti
 [Comparativo – Superlux HD681 vs Arcano ARC-SHP80](https://www.youtube.com/watch?v=ahn5fkDU9WM)
 
 ---
+
+**Sony MDR-ZX110**
+
+Geral : Graves bem acentuados com medios um pouco escuros e agudos de pouca 
+
+Media de preço R$ 70,00 a R$80,00
+
+[Loja Amazon](https://www.amazon.com.br/Fone-Ouvido-Dobrável-Sony-Preto/dp/B00NBR70DO/ref=asc_df_B00NBR70DO/?tag=googleshopp00-20&linkCode=df0&hvadid=379708086870&hvpos=&hvnetw=g&hvrand=12030220138243236766&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1001773&hvtargid=pla-385802384580&psc=1)
+
+
+
+---
+
 ##### Fones intra-auriculares (in-ear)(internos)
 
 Media de preço R$ 70,00  a R$ 150,00
