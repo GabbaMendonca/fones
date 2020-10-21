@@ -73,10 +73,9 @@ Media de preço R$ 70,00 a R$80,00
 
 ---
 
-****
+**H840 EDIFIER**
 
-[H840 EDIFIER](https://www.lojaedifier.com.br/fone-de-ouvido-h840-edifier-preto.html?___store=lojaedifier&fee=4&fep=1487&gclid=Cj0KCQjwrIf3BRD1ARIsAMuugNsp_gadzyy7O3CqzmWUOYJ6adKiDJandVqgWK7F6XZTwN49rBVbTVMaAs3EEALw_wcB)
-
+[Loja H840 EDIFIER](https://www.lojaedifier.com.br/fone-de-ouvido-h840-edifier-preto.html?___store=lojaedifier&fee=4&fep=1487&gclid=Cj0KCQjwrIf3BRD1ARIsAMuugNsp_gadzyy7O3CqzmWUOYJ6adKiDJandVqgWK7F6XZTwN49rBVbTVMaAs3EEALw_wcB)
 
 
 ---
